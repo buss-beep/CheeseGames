@@ -3,7 +3,7 @@
 *Subscribe to Blazer!!!*
 https://youtube.com/c/blazerhm
 
-Also credit to 3kh0 wnd tw for the games
+Also credit to 3kh0 and tw for the games
 
 Game update every friday
 
